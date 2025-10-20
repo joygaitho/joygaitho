@@ -1,5 +1,5 @@
 #
-🚀 Joy Wanjiru Gaitho — ALX Back-End Developer / Software Engineer (Portfolio)
+🚀 Joy Wanjiru Gaitho — ALX Back-End Developer / Software Engineer
 ________________________________________
         
 ________________________________________
